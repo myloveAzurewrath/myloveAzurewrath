@@ -1,6 +1,18 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Hits](https://hits.sh/github.com/myloveAzurewrath.svg?style=flat-square&label=%E3%85%A4%E2%99%A1%E0%BE%80%E0%BD%B2%20%E3%85%A4%20%20%E0%A3%AA%CB%96%20%D6%B4%D6%B6%20%E3%85%A4%F0%9D%92%A6isses%20for%20my%20%20%E3%85%A4dear%20%20%E3%85%A4%F0%9D%92%9Czurewrath&extraCount=44006&color=b2bed3&labelColor=70787c)](https://hits.sh/github.com/myloveAzurewrath/)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Hits](https://hits.sh/github.com/myloveAzurewrath.svg?style=flat-square&label=%E3%85%A4%E2%99%A1%E0%BE%80%E0%BD%B2%20%E3%85%A4%20%20%E0%A3%AA%CB%96%20%D6%B4%D6%B6%20%E3%85%A4%F0%9D%92%A6isses%20for%20my%20%20%E3%85%A4dear%20%20%E3%85%A4%F0%9D%92%9Czurewrath&extraCount=44006&color=b2bed3&labelColor=70787c)](https://hits.sh/github.com/myloveAzurewrath/)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤwip
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ愛ㅤㅤִֶָㅤㅤㅤ[𝒫ronouns](https://pronouns.cc/@Odellxx) ִֶָ. ..ㅤㅤㅤㅤ𓂃 ࣪ ִֶ་༘ㅤㅤㅤㅤ࿐
+      ㅤㅤㅤㅤㅤㅤㅤㅤ                       
+      
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹ ࣪ ˖ ㅤ*𝒪dette  or 𝒜morette*
+
+
+
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤwipp
