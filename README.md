@@ -7,8 +7,7 @@ ${\color{#abd9df}\textsf{       ㅤ ㅤ ㅤ ㅤ ㅤ𝒲e'rⓔ ㅤ𝕙and in ㅤh
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-WIPPP
+<img src="https://file.garden/ahzk2jZb3ijoevVh/20260601_210515.gif" width="500">
 
 
 
