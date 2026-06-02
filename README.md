@@ -4,11 +4,8 @@ ${\color{#93b4c5}\textsf{ㅤㅤㅤㅤ .ㅤ ׅ 𝄞ㅤㅤ ㅤ}}$ ${\color{#44596f
 ${\color{#758da2}\textsf{        ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ愛}}$    
 ${\color{#abd9df}\textsf{       ㅤ ㅤ ㅤ ㅤ ㅤ𝒲e'rⓔ ㅤ𝕙and in ㅤh͟a͟n͟d͟
  }}$
-ㅤㅤㅤㅤㅤ<img src="https://file.garden/ahzk2jZb3ijoevVh/100%20sin%20t%C3%ADtulo_20260601212128.png" width="233">   ִֶָ ㅤㅤ. ࣪ ִֶָ་
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<img src="https://file.garden/ahzk2jZb3ijoevVh/20260601_210515.gif" width="500">
-
+ㅤㅤㅤㅤ
+wipp
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
