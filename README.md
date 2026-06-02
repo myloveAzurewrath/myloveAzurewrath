@@ -5,6 +5,7 @@ ${\color{#758da2}\textsf{        ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄 ㅤ ㅤ ㅤ ㅤ
 ${\color{#abd9df}\textsf{       ㅤ ㅤ ㅤ ㅤ ㅤ𝒲e'rⓔ ㅤ𝕙and in ㅤh͟a͟n͟d͟
  }}$
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img src="https://file.garden/ahzk2jZb3ijoevVh/100%20sin%20t%C3%ADtulo_20260601211412.png" width="277">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img src="https://file.garden/ahzk2jZb3ijoevVh/20260601_210515.gif" width="500">
